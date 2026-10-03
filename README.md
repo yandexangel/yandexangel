@@ -15,7 +15,7 @@
 </div>
 
 <details>
-<summary> ⎯⎯ ${\textsf{\color{#947A68}About me!}}$ ღ </summary>
+<summary> ⎯⎯ ${\textsf{\color{#795c4a}About me!}}$ ღ </summary>
   
 ![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) ${\textsf{\color{#795c4a}Im genderfluid, omnisexual and i go by xenogenders!}}$
 
@@ -28,26 +28,34 @@
 </p>
 
 <details>
-<summary> ⎯⎯ ${\textsf{\color{#947A68}Before You Interact}}$ ღ </summary>
+<summary> ⎯⎯ ${\textsf{\color{#be9a82}Before You Interact}}$ ღ </summary>
 
+![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) ${\textsf{\color{#795c4a}dont mention car crashes or reckless driving around me.}}$
 
+<p></p>
+
+![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) ${\textsf{\color{#795c4a}I collect pronouns to cope as well as a way to express myself in a non-harmful way. if you think its cringe or dont like xenogenders, BLOCK ME!}}$
+
+<p></p>
+
+![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) ${\textsf{\color{#795c4a}I am extremely avoidant naturally, this isnt personal against anyone. please dont push me to respond i will get to you on my own time! }}$
+
+<p></p>
+
+![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) ${\textsf{\color{#795c4a}I personally don't have a DNI list, because in my experience and opinion, they don't work. that being said, i block freely and frequently.}}$
+
+<p></p>
+
+![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) ${\textsf{\color{#795c4a}I dont interact with anyone under 13, most games and platforms i go on are 13+ so this is just a general thing for me across all medias}}$
 
 </details>
-
-<details>
-<summary> ⎯⎯ ${\textsf{\color{#947A68}Do Not Interact}}$ ღ </summary>
-
-anti xenos, anyone under the age of 13, T.R.A.S.H.
-
-</details>
-
 
 <div align="center">
 </div>
 
 
 <details>
-<summary> ⎯⎯ ${\textsf{\color{#947A68}Blinkies, Stamps, Buttons and Userboxes!}}$ ღ </summary>
+<summary> ⎯⎯ ${\textsf{\color{#d6c5b8}Blinkies, Stamps, Buttons and Userboxes!}}$ ღ </summary>
 
 ![](https://64.media.tumblr.com/094feb9710c13ef3662b2ab6891fb813/f153d9824cb8d5cc-2b/s250x400/b9e5c350e3e61cd92a5f3c068d604e62f92935ce.gifv)
 ![](https://64.media.tumblr.com/649a768b9d4d524d77e37bac19d1a7b4/bff5f66d460e5ab3-42/s250x400/a12d5da3d20d79567e62d3216e40621eb0cac3ef.gifv)
