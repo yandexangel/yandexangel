@@ -1,10 +1,9 @@
 ![](https://64.media.tumblr.com/b8054df4dbf2108889522b132be1a5c8/62c85e8448eea3ab-48/s1280x1920/7e163ce90fbae4343e45ae0296426f08d3e7645c.pnj)
 
 
-<img src="https://64.media.tumblr.com/eb62157c49f6584a3c5595bc08fb25dc/8da0cb306a2f2385-39/s400x600/8d9eac1b2c7c532b0b69153690587e49ba5fc7ae.pnj" align="left" width="30%"><p align="center">  ${\textsf{\color{#A9D8E8}"Your own piece of heaven."}}$ <br> <img src="https://64.media.tumblr.com/adc17272b44e0c5b0595cb8f7c1813d7/0d5045c63d5d2d4a-09/s2048x3072/e3b56d6815fa0f2a8c66c40b73e8a11897a56aab.pnj" style="width: 30%; height: auto;"/> <p align="center"> ${\textsf{\color{#A9D8E8}Berrymelon}}$ /<i> Confetti </i> <br> Any ♡ All pronouns⠀⸝⠀16 <br> CSS + HTML coder ⎯⎯⎯ website designer <br> ${\textsf{\color{#A9D8E8}INFP}}$⎯⎯Ambivert .✦ ݁˖
+<img src="https://64.media.tumblr.com/eb62157c49f6584a3c5595bc08fb25dc/8da0cb306a2f2385-39/s400x600/8d9eac1b2c7c532b0b69153690587e49ba5fc7ae.pnj" align="left" width="30%"><p align="center">  ${\textsf{\color{#A9D8E8}"Your own piece of heaven."}}$ <br> <img src="https://64.media.tumblr.com/1d4b3064a163070048e22c55ba0dab3a/62c85e8448eea3ab-1d/s1280x1920/a976305e6364a051b5be402e97121b0932a25b0c.pnj" style="width: 30%; height: auto;"/> <p align="center"> ${\textsf{\color{#A9D8E8}Berrymelon}}$ /<i> Confetti </i> <br> Any ♡ All pronouns⠀⸝⠀16 <br> CSS + HTML coder ⎯⎯⎯ website designer <br> ${\textsf{\color{#A9D8E8}INFP}}$⎯⎯Ambivert .✦ ݁˖
 <p></p>
-<img src="https://64.media.tumblr.com/53ee7f883cee116f793a8028ac8f66cc/0d5045c63d5d2d4a-29/s2048x3072/a12a981fc2b535c794780ab04997a118610ceb88.pnj" style="width: 30%; height: auto;"/>
-<div align="center">
+<img src="https://64.media.tumblr.com/996150a79e311c291f0d04e6d2ac0d13/be1a0ac4e48e3c6d-65/s2048x3072/31f6410cffc878b61faa6cfb8e937d5f3bd7969b.pnj" align="left" style="width: 30%; height: auto;"
   <p></p>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&duration=1000&pause=2000&color=F2B1C1&vCenter=true&width=435&lines=%22Honey+just+put+your+sweet+lips+on+my+lips%2C...%22" align="center" alt="Typing SVG" /></a>
 </div>  
@@ -12,7 +11,7 @@
 
   ![](https://komarev.com/ghpvc/?username=BERRYMELON-username&color=FFB0C9&label=Town-visitors)
 
-  ![](https://64.media.tumblr.com/eedac006781b55be89368287c935aee9/bea578ccfee15413-13/s1280x1920/74d7ef66d58a68808a6d618b527b4b7594f4b874.gifv)
+  ![](https://64.media.tumblr.com/5c60a849caa59e75d4594daa422d6ddd/be1a0ac4e48e3c6d-c5/s2048x3072/af5c5c70d9af8ac1e260c180e1f1b8d8b4d4ef3d.pnj)
 </div>
 
 <details>
