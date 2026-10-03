@@ -9,7 +9,7 @@
 </div>  
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=yandexangel-username&color=&be9a82label=Town-visitors)
+  ![](https://komarev.com/ghpvc/?username=yandexangel-username&color=&947A68label=Town-visitors)
 
   ![](https://64.media.tumblr.com/5c60a849caa59e75d4594daa422d6ddd/be1a0ac4e48e3c6d-c5/s2048x3072/af5c5c70d9af8ac1e260c180e1f1b8d8b4d4ef3d.pnj)
 </div>
