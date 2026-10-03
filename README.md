@@ -5,11 +5,11 @@
 <p></p>
 <img src="https://64.media.tumblr.com/996150a79e311c291f0d04e6d2ac0d13/be1a0ac4e48e3c6d-65/s2048x3072/31f6410cffc878b61faa6cfb8e937d5f3bd7969b.pnj" align="left" style="width: 30%; height: auto;"
   <p></p>
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&duration=1000&pause=2000&color=795c4a&vCenter=true&width=435&lines=%22Honey+just+put+your+sweet+lips+on+my+lips%2C...%22" align="center" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&duration=1000&pause=2000&color=d6c5b8&vCenter=true&width=435&lines=%22Honey+just+put+your+sweet+lips+on+my+lips%2C...%22" align="center" alt="Typing SVG" /></a>
 </div>  
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=yandexangel-username&color=&d6c5b8label=Town-visitors)
+  ![](https://komarev.com/ghpvc/?username=yandexangel-username&color=d6c5b8)
 
   ![](https://64.media.tumblr.com/5c60a849caa59e75d4594daa422d6ddd/be1a0ac4e48e3c6d-c5/s2048x3072/af5c5c70d9af8ac1e260c180e1f1b8d8b4d4ef3d.pnj)
 </div>
