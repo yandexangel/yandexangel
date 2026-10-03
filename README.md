@@ -1,0 +1,71 @@
+![](https://64.media.tumblr.com/b8054df4dbf2108889522b132be1a5c8/62c85e8448eea3ab-48/s1280x1920/7e163ce90fbae4343e45ae0296426f08d3e7645c.pnj)
+
+
+<img src="https://64.media.tumblr.com/426773ff78acf914e928bdf52390bd04/9d7b4eb5705cad04-94/s250x400/61a5e6aa75848766587c435d05f6a98566cc936e.pnj" align="left" width="30%"><p align="center">  ${\textsf{\color{#A9D8E8}"Your own piece of heaven."}}$ <br> <img src="https://64.media.tumblr.com/adc17272b44e0c5b0595cb8f7c1813d7/0d5045c63d5d2d4a-09/s2048x3072/e3b56d6815fa0f2a8c66c40b73e8a11897a56aab.pnj" style="width: 30%; height: auto;"/> <p align="center"> ${\textsf{\color{#A9D8E8}Berrymelon}}$ /<i> Confetti </i> <br> Any ♡ All pronouns⠀⸝⠀16 <br> CSS + HTML coder ⎯⎯⎯ website designer <br> ${\textsf{\color{#A9D8E8}INFP}}$⎯⎯Ambivert .✦ ݁˖
+<img src="https://64.media.tumblr.com/53ee7f883cee116f793a8028ac8f66cc/0d5045c63d5d2d4a-29/s2048x3072/a12a981fc2b535c794780ab04997a118610ceb88.pnj" style="width: 30%; height: auto;"/>
+<div align="right">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&duration=1000&pause=2000&color=F2B1C1&vCenter=true&width=435&lines=%22Honey+just+put+your+sweet+lips+on+my+lips%2C...%22" align="center" alt="Typing SVG" /></a>
+</div>  
+<div align="center">
+
+  ![](https://komarev.com/ghpvc/?username=BERRYMELON-username&color=FFB0C9&label=Town-visitors)
+
+  ![](https://64.media.tumblr.com/eedac006781b55be89368287c935aee9/bea578ccfee15413-13/s1280x1920/74d7ef66d58a68808a6d618b527b4b7594f4b874.gifv)
+</div>
+
+<details>
+<summary> ⎯⎯ ${\textsf{\color{#947A68}About me!}}$ ღ </summary>
+
+
+</details>
+
+</p>
+
+<details>
+<summary> ⎯⎯ ${\textsf{\color{#947A68}DNI list}}$ ღ </summary>
+
+anti xenos, anyone under the age of 13, T.R.A.S.H.
+
+</details>
+
+<details>
+<summary> ⎯⎯ ${\textsf{\color{#947A68}place holder}}$ ღ </summary>
+
+
+
+</details>
+
+<div align="center">
+<img src="https://64.media.tumblr.com/739f73f56377c7f4e3c29c5975e98579/6609312d6a5766f4-c3/s1280x1920/2494e53c1d3a3a3b6f13ad39fd14e11de5c0ca1c.pnj" style="width: 400px; height: 35px;"/>
+
+  *WARNING! some items below may contain triggering media and or rapid flashing images, continue with caution!*
+</div>
+
+
+<details>
+<summary> ⎯⎯ ${\textsf{\color{#947A68}Blinkies, Stamps, Buttons and Userboxes!}}$ ღ </summary>
+
+![](https://64.media.tumblr.com/094feb9710c13ef3662b2ab6891fb813/f153d9824cb8d5cc-2b/s250x400/b9e5c350e3e61cd92a5f3c068d604e62f92935ce.gifv)
+![](https://64.media.tumblr.com/649a768b9d4d524d77e37bac19d1a7b4/bff5f66d460e5ab3-42/s250x400/a12d5da3d20d79567e62d3216e40621eb0cac3ef.gifv)
+![](https://64.media.tumblr.com/a221565d98082bd7da37782f98d98933/45a0a4567403b033-49/s250x400/244cfde5b040a7d9af2b8117a442ef7659385472.gifv)
+
+![](https://64.media.tumblr.com/2e647c2a081a4c13c00c16b5145bb65e/6fa673e382301ccd-49/s100x200/a2d16731a52df5e6651d4f53602e0f190b6888d7.gifv)
+![](https://64.media.tumblr.com/548e6adbe7e1c968030a43c23b5012cd/e3071721f0e9ec15-e6/s250x400/12e9f590a1420f65432d0723538a3857ea2b7d49.pnj)
+![](https://64.media.tumblr.com/622865ba62913379b318cb8cd6b67937/2ecbb314f3ac203a-24/s100x200/11f013699e7cd1c108f5c28f116d562b57736e11.gifv)
+![](https://64.media.tumblr.com/823f28bdfa1c3fcf839a3fba152cbfd0/8fb2527e26ea09fc-ca/s100x200/6c341af5213b4e4801e1d115b21a6bb824ec347b.gifv)
+
+![](https://64.media.tumblr.com/3e7e87782ace4e800a0ac77ea65781b7/73eef17597a75fa8-17/s250x400/3b36ab8f7674dea4861c800abc573e82e080726c.pnj)
+![](https://64.media.tumblr.com/41baac4474ec8f54621817629af2dc02/73eef17597a75fa8-b5/s250x400/19a88854c71b4477296bddc8234dd1c3238e5717.pnj)
+
+![](https://64.media.tumblr.com/6eccac76a43c5af20780682afb9cd9b1/cfa5b983c7939828-16/s100x200/fb6f7381808fae38e43e28ea344ff3112593a590.gifv)
+![](https://files.catbox.moe/q0o4bj.gif)
+![](https://files.catbox.moe/sxpn4n.gif)
+![](https://files.catbox.moe/tme1ks.gif)
+
+<p></p>
+
+</details>
+
+  <div align="center">
+<img src="https://64.media.tumblr.com/d77a49a04c32e0173c8d8835ed28d811/ce4a85b266d655ed-b3/s250x400/56556c24953ca11b917fca54d693b3cfb308e76e.pnj" style="width: 50%; height: 90%;"/>
+  </div>
