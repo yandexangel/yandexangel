@@ -38,7 +38,7 @@
 
 <p></p>
 
-![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) ${\textsf{\color{#795c4a}I collect pronouns to cope as well as a way to express myself in a non-harmful way. if you think its cringe or dont like xenogenders, BLOCK ME!}}$
+![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) ${\textsf{\color{#795c4a}I collect pronouns to cope as well as a way to express myself in a non-harmful way. if you think its cringe or dont like xenogenders, DNI}}$
 
 <p></p>
 
