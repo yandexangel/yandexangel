@@ -16,25 +16,31 @@
 
 <details>
 <summary> ⎯⎯ ${\textsf{\color{#947A68}About me!}}$ ღ </summary>
+  
+![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) ${\textsf{\color{#795c4a}Im genderfluid, omnisexual and i go by xenogenders!}}$
 
+<p></p>
+
+![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) ${\textsf{\color{#795c4a}I have Derealization and Aphantasia}}$
 
 </details>
 
 </p>
 
 <details>
-<summary> ⎯⎯ ${\textsf{\color{#947A68}DNI list}}$ ღ </summary>
+<summary> ⎯⎯ ${\textsf{\color{#947A68}Before You Interact}}$ ღ </summary>
+
+
+
+</details>
+
+<details>
+<summary> ⎯⎯ ${\textsf{\color{#947A68}Do Not Interact}}$ ღ </summary>
 
 anti xenos, anyone under the age of 13, T.R.A.S.H.
 
 </details>
 
-<details>
-<summary> ⎯⎯ ${\textsf{\color{#947A68}place holder}}$ ღ </summary>
-
-
-
-</details>
 
 <div align="center">
 </div>
