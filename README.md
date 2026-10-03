@@ -21,6 +21,10 @@
 
 <p></p>
 
+![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) ${\textsf{\color{#795c4a}Im a yumeshipper! my F/Os are Wolverine, Nightcrawler, and Deadpool from MARVEL aswell as Casper from A Date with Death! Doubles DNI}}$
+
+<p></p>
+
 ![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) ${\textsf{\color{#795c4a}I have Derealization and Aphantasia}}$
 
 </details>
