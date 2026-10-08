@@ -1,7 +1,7 @@
 <img src="https://64.media.tumblr.com/25d20909c3f8946e4bd639ce0583d6a1/bf1dbcc29b373ecf-12/s400x600/74620387362360e1fadac2e9975b1646ffa2c27a.pnj" align="center" width="90%"><p align="center">
 
 
-<img src="https://i.postimg.cc/YSCjVN6h/image-removebg-preview-2026-10-08T172607-866.png" align="left" width="30%"><p align="center">  ${\textsf{\color{#795c4a}"Im pure...im pure...im pure as a lamb."}}$ <br> <img src="https://64.media.tumblr.com/1d4b3064a163070048e22c55ba0dab3a/62c85e8448eea3ab-1d/s1280x1920/a976305e6364a051b5be402e97121b0932a25b0c.pnj" style="width: 30%; height: auto;"/> <p align="center"> ${\textsf{\color{#be9a82}Yandex}}$ /<i> Yan </i> <br> Any ♡ All pronouns⠀⸝⠀16 <br> CSS + HTML coder ⎯⎯⎯ website designer <br> ${\textsf{\color{#d6c5b8}INFP}}$⎯⎯Ambivert .✦ ݁˖
+<img src="https://i.postimg.cc/YSCjVN6h/image-removebg-preview-2026-10-08T172607-866.png" align="left" width="30%"><p align="center">  ${\textsf{\color{#795c4a}"Im pure...im pure...im pure as a lamb."}}$ <br> <img src="https://64.media.tumblr.com/496faa9a0d7d8b66fcdd51fa9151e027/17cbae229b3b67f0-6a/s1280x1920/e597a0e18779ccf07b17344348374b63bc66ff49.pnj" style="width: 40%; height: auto;"/> <p align="center"> ${\textsf{\color{#be9a82}Yandex}}$ /<i> Yan </i> <br> Any ♡ All pronouns⠀⸝⠀16 <br> CSS + HTML coder ⎯⎯⎯ website designer <br> ${\textsf{\color{#d6c5b8}INFP}}$⎯⎯Ambivert .✦ ݁˖
 <p></p>
 <div align="center">
 <img src="https://64.media.tumblr.com/3fce9f89dc26adaff76c8c66107fecdc/2313462277efff0c-13/s400x600/60e27f81fdbaed4259ebcea48c574498f4c31122.gifv" style="width: 40%; height: auto;"
