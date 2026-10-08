@@ -1,9 +1,10 @@
 ![](https://64.media.tumblr.com/b8054df4dbf2108889522b132be1a5c8/62c85e8448eea3ab-48/s1280x1920/7e163ce90fbae4343e45ae0296426f08d3e7645c.pnj)
 
 
-<img src="https://64.media.tumblr.com/eb62157c49f6584a3c5595bc08fb25dc/8da0cb306a2f2385-39/s400x600/8d9eac1b2c7c532b0b69153690587e49ba5fc7ae.pnj" align="left" width="30%"><p align="center">  ${\textsf{\color{#795c4a}"Im pure...im pure...im pure as a lamb."}}$ <br> <img src="https://64.media.tumblr.com/1d4b3064a163070048e22c55ba0dab3a/62c85e8448eea3ab-1d/s1280x1920/a976305e6364a051b5be402e97121b0932a25b0c.pnj" style="width: 30%; height: auto;"/> <p align="center"> ${\textsf{\color{#be9a82}Yandex}}$ /<i> Yan </i> <br> Any ♡ All pronouns⠀⸝⠀16 <br> CSS + HTML coder ⎯⎯⎯ website designer <br> ${\textsf{\color{#d6c5b8}INFP}}$⎯⎯Ambivert .✦ ݁˖
+<img src="https://i.postimg.cc/YSCjVN6h/image-removebg-preview-2026-10-08T172607-866.png" align="left" width="30%"><p align="center">  ${\textsf{\color{#795c4a}"Im pure...im pure...im pure as a lamb."}}$ <br> <img src="https://64.media.tumblr.com/1d4b3064a163070048e22c55ba0dab3a/62c85e8448eea3ab-1d/s1280x1920/a976305e6364a051b5be402e97121b0932a25b0c.pnj" style="width: 30%; height: auto;"/> <p align="center"> ${\textsf{\color{#be9a82}Yandex}}$ /<i> Yan </i> <br> Any ♡ All pronouns⠀⸝⠀16 <br> CSS + HTML coder ⎯⎯⎯ website designer <br> ${\textsf{\color{#d6c5b8}INFP}}$⎯⎯Ambivert .✦ ݁˖
 <p></p>
-<img src="https://64.media.tumblr.com/996150a79e311c291f0d04e6d2ac0d13/be1a0ac4e48e3c6d-65/s2048x3072/31f6410cffc878b61faa6cfb8e937d5f3bd7969b.pnj" align="left" style="width: 30%; height: auto;"
+<div align="center">
+<img src="https://64.media.tumblr.com/3fce9f89dc26adaff76c8c66107fecdc/2313462277efff0c-13/s400x600/60e27f81fdbaed4259ebcea48c574498f4c31122.gifv" style="width: 40%; height: auto;"
   <p></p>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&duration=1000&pause=2000&color=d6c5b8&vCenter=true&width=435&lines=%22Honey+just+put+your+sweet+lips+on+my+lips%2C...%22" align="center" alt="Typing SVG" /></a>
 </div>  
